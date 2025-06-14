@@ -1,0 +1,2 @@
+# Falci-Cadi
+ETKİLEŞİMLİ TAROT ANİMASYONU
